@@ -1,0 +1,1 @@
+# https-github.com-SvetlanaRiasnova-Architecture_HW2
